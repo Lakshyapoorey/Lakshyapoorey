@@ -1,0 +1,5 @@
+- @Lakshya_poorey 💻
+- he/him 👨‍💻
+- im currently learning 📚
+- i wanna become fullstack developer 📟 
+- currently working on web development 💪 
